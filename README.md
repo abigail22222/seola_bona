@@ -1,6 +1,8 @@
 # seola_bona
 ——自己比较喜欢的雪苞文整理
 
+若有违规立马道歉并删除
+
 [微博推荐](https://weibo.com/7710928662/Lf1UNdSMz)
 
 [lofter雪苞文整理.xlsx](https://1drv.ms/x/s!AjgJYtLb_54mknC13xj3HVNDuCEg?e=unK4yw)
