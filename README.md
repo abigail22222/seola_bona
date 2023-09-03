@@ -10,6 +10,7 @@
 
 
 韩国人写的：
+[集合](https://twitter.com/sbsbsb0819/status/1321021200303222784)
 
 [立场整理](https://github.com/abigail22222/seola_bona/blob/master/%E7%AB%8B%E5%9C%BA%E6%95%B4%E7%90%86.md)
 
