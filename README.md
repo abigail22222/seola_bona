@@ -7,11 +7,15 @@
 
 [来自@MickeyChen0306的分享](https://drive.google.com/drive/mobile/folders/1eHih4qjxiDbG57VVqFPpT2cYXGTm5Xaa?usp=sharing)
 
+**散落的文章**
+[十五夜](https://seolbbo2419.postype.com/post/15243178)
+[组织](https://syak0114.postype.com/post/14762657)
 
 
-韩国人写的：
 
-[集合](https://twitter.com/sbsbsb0819/status/1321021200303222784)
+**韩国人写的：**
+
+[集合(还没存档)](https://twitter.com/sbsbsb0819/status/1321021200303222784)
 
 [立场整理](https://github.com/abigail22222/seola_bona/blob/master/seolbo/%E7%AB%8B%E5%9C%BA%E6%95%B4%E7%90%86.md)
 
