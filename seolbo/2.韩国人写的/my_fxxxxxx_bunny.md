@@ -1,6 +1,6 @@
 # My Fxxxxxx Bunny
 
-原文：카누 翻譯：heun_0320
+原文：카누 翻譯：heun_0320 https://www.asianfanfics.com/profile/view_author_stories/heun_0320/L
 
  
 
